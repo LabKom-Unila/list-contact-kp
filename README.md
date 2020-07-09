@@ -43,3 +43,29 @@ PT Berlian Sistem Informasi (BSI), is an IT solution provider, founded in 1996, 
 BSI's mission is to provide an appropriate IT solution to our clients, by using the 22 years of experiences in IT industry, both for application and infrastructure area.
 This mission in coated with the wish to contribute to the development of Indonesian Information Technology environment. 
 
+
+## Sinbad
+**Alamat:**
+Graha Sucofindo Jl. Raya Pasar Minggu Kav. 34 Jakarta Selatan 12780 Indonesia
+
+**URL:** https://sinbad.co.id/
+
+**No. Telp. Perusahaan:**
+TEL: +62 899-9296-162
+
+**Profil Singkat Perusahaan:**
+
+A B2B mobile marketplace that connects distributors in Indonesia directly with outlets. A platform for retailers to order Fast Moving Consumer Goods (FMCG) that are profitable and in-demand. Sinbad's mission is to maximize efficiency in the supply chain industry through technology.
+
+**Contact Person**
+
+Nama: Nurul Faizah
+Jabatan: People Specialist Lead
+Email: nurul@sinbad.co.id
+No. Telp: +62 8387-9374-903
+
+**Note**
+Sebelum mengajukan kerja praktek di Sinbad. Mohon hubungi Arham Awal Abiyan (arham@sinbad.co.id) (+62 821-7540-5796) untuk konfirmasi sebelum mengirimkan proposal kerja praktek.
+
+**Surat Ditujukan**
+Ke perusahaan Via. nurul@sinbad.co.id
