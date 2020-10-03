@@ -69,3 +69,19 @@ Sebelum mengajukan kerja praktek di Sinbad. Mohon hubungi Arham Awal Abiyan (arh
 
 **Surat Ditujukan**
 Ke perusahaan Via. nurul@sinbad.co.id
+
+## Avana Indonesia
+**Alamat:**
+Bandung, Indonesia
+
+**URL:** https://www.avana.id/
+
+**No. Telp. Perusahaan:**
+TEL: +62 899-9296-162
+
+**Profil Singkat Perusahaan:**
+
+A creative, dynamic, fun, innovative and passionate team in our mission to empower online merchants globally. Now AVANA is in 3 different country along South East Asia. 
+
+**How to Apply**
+https://glints.com/id/opportunities/jobs/quality-assurance-intern/607eb679-cbcf-4f9f-b27f-c337d4a59aca/share/78b0aa40-68cb-452e-b1a3-9c38e7717c13?utm_medium=share&utm_campaign=marketplace
